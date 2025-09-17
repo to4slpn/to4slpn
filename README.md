@@ -14,7 +14,7 @@
 
 You can reach me on:
 - Discord: **to4slpn**
-- Telegram: **@michalbaron**
+- Telegram: **@to4slpn**
 
 ## GitHub Stats
 
